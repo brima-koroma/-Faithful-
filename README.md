@@ -1,2 +1,2 @@
 # -Faithful-
-Business should legal to everyone 
+Business be should legal to everyone 
